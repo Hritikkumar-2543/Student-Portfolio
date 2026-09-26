@@ -65,10 +65,10 @@ Adarsh Vidya Vidhyalay, Patna
 https://github.com/Hritikkumar-2543
 
 **LinkedIn:**  
-Add your LinkedIn profile link here
+www.linkedin.com/in/hritik-kumar-5857963a8
 
 **Email:**  
-Add your email address here
+hroy50750@gmail.com
 
 ## Author
 
